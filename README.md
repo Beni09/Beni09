@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Beni09
-- 👀 I’m interested in product design/project management 
+- 👀 I’m interested in product design 
 - 🌱 I’m currently learning product design
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me "queenbeni4@gmail.com
